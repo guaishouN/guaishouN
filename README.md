@@ -9,6 +9,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on interesting Android UI
 - 🤔 I’m looking for help with design
 - 💬 Ask me about ...
-- 📫 How to reach me: 674149099@qq.com wx:guaishouN
+- 📫 How to reach me: 674149099@qq.com 
 - 😄 Pronouns: 怪兽N
 - ⚡ Fun fact: lalalalala
